@@ -10,3 +10,7 @@ i like to play football,playing games,enjoying with friends etc...
  my father is a gold smith
  my mother is a house wife 
  i have a brother  studing 9th standard
+ my role modle 
+ my role model is virat kohli
+ he is such great person the ego king in circket 
+ 
