@@ -13,4 +13,6 @@ i like to play football,playing games,enjoying with friends etc...
  my role modle 
  my role model is virat kohli
  he is such great person the ego king in circket 
+ sir 
+ how to place in a big mnc company
  
